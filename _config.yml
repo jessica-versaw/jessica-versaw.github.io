@@ -9,7 +9,7 @@
 title: This is Only a Test
 email: jessica@versaw.com
 description: > # this means to ignore newlines until "baseurl:"
-  My name is Jessica, and I'm a software tester based in Lincoln, Nebraska. Check this out for the trials and errors of a twenty something living in the heartland.
+  The trials and errors of a twenty something living in the heartland.
 baseurl: "" # the subpath of your site, e.g. /blog
 url: "http://jessica.versaw.com" # the base hostname & protocol for your site
 twitter_username: jraeversaw
