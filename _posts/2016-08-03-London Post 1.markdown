@@ -5,7 +5,7 @@ date:   2016-08-03 22:52:39 -0600
 tags: Londontown
 ---
 
-This blog is probably going to be ugly until I get back to the States, as I doubt I'll have time to put a theme in place. But I know there are just loads of you starving for more information about my time abroad (...Or just my family, it's fine.), so I figured I'd use my blog to keep tabs on things. 
+This blog is probably going to be ugly until I get back to the States, as I doubt I'll have time to put a theme in place. But I know there are just loads of you starving for more information about my time abroad (...Or just my family, it's fine -- though I creep on _a lot_ of people's blogs that I barely associate with, so who knows), so I figured I'd use my blog to keep tabs on things. 
 
 # London, Day -3 #
 
