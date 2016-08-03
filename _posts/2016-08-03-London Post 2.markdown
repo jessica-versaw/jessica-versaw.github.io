@@ -28,8 +28,8 @@ Joan and Adriana joined us around this time, and we took off to another pub that
 1:30pm -- Alarm goes off. Oh shit, the guy we're staying with probably hates us. 
 So at that point, we get out of bed and start getting ready to meet another coworker, Antonios, and his girlfriend. We meet at the Embankent station, which is unsurprisingly by the bank of the Thames, and eat at a restaurant called Giraffe, which is a decently large chain in the UK. I got "Tuk Tuk Duck Stir Fry," which honestly was pretty phenomenal, though I did have to salt it, because I am an American. 
 
-![Flowers](https://i.imgur.com/32hibE3.jpg)
-! [Flowers at Giraffe. I thought they were cool.]
+![Flowers](https://i.imgur.com/32hibE3.jpg "Flowers at Giraffe. I thought they were cool.")
+
 
 After that, we walked down to Tower Bridge. A pretty long walk, but Ryan got to start to get a sense of London. We stopped at a couple pubs along the way, and made our way through quite a few street festivals -- including one that involved drag queens singing Beauty and the Beast, which you KNOW caught my attention. (I basically had to be pryed away.) It was a nice walk, and a good opportunity to get to know Antonios and Tatiana. 
 
