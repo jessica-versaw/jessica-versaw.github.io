@@ -28,17 +28,17 @@ Joan and Adriana joined us around this time, and we took off to another pub that
 1:30pm -- Alarm goes off. Oh shit, the guy we're staying with probably hates us. 
 So at that point, we get out of bed and start getting ready to meet another coworker, Antonios, and his girlfriend. We meet at the Embankent station, which is unsurprisingly by the bank of the Thames, and eat at a restaurant called Giraffe, which is a decently large chain in the UK. I got "Tuk Tuk Duck Stir Fry," which honestly was pretty phenomenal, though I did have to salt it, because I am an American. 
 
-! [](https://i.imgur.com/32hibE3.jpg)
+! [] (https://i.imgur.com/32hibE3.jpg)
 ! [Flowers at Giraffe. I thought they were cool.]
 
 After that, we walked down to Tower Bridge. A pretty long walk, but Ryan got to start to get a sense of London. We stopped at a couple pubs along the way, and made our way through quite a few street festivals -- including one that involved drag queens singing Beauty and the Beast, which you KNOW caught my attention. (I basically had to be pryed away.) It was a nice walk, and a good opportunity to get to know Antonios and Tatiana. 
 
-! [](https://i.imgur.com/Wxz1flX.jpg)
+! [] (https://i.imgur.com/Wxz1flX.jpg)
 ! [Tower Bridge. Not London Bridge. Also not falling down.]
 
 We ended at The Dickens Inn, which was gorgeous and covered in flowers. Of course I'm a moron and took a Snapchat and forgot to save it. We grabbed a couple drinks there, and I poured over Yelp to try to figure out somewhere to eat. Guys, London is overwhelming when you're trying to sort out where to eat. Like... Ryan and I, much like every other couple in the world, already have a hard enough time with this in Lincoln. We settled on an Italian place, and headed there with Antonios, as Tatiana had to take off.
 
-! [](https://i.imgur.com/RfDhiZK.jpg)
+! [] (https://i.imgur.com/RfDhiZK.jpg)
 ! [St. Paul's Cathedral]
 
 On the way, we passed a pub that Antonios had been to recently, where apparently they used to hang criminals while the tide was high, then kind of let the tide do their dirty work as it went out. Uh, I guess that puts Ricketts trying to illegally import drugs for lethal injection in perspective. (Just kidding. Ricketts is still basically Lex Luther but more stupid.) We got pizza and bruschetta, which wasn't bad, but nothing to write home about -- despite that being exactly what I'm doing. Apparently there might be something to the whole tipping thing in the U.S, because it took about twenty years to get our check, making it a fairly late night back home. 
