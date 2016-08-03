@@ -18,3 +18,6 @@ permalink: /:categories/:year/:month/:day/:title
 
 # Build settings
 markdown: kramdown
+
+# Google services
+google_analytics: UA-81872870-1
