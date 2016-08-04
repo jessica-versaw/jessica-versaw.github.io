@@ -18,13 +18,13 @@ The area that surrounds the office is quite nice -- so many restaurants you don'
 ![Angel](https://i.imgur.com/jy24ZF7.jpg)
 
 #A few thoughts on working out of the London office#
--There is a ton more natural light, which really seems to help my motivation. The Lincoln office is always fairly dark (at least my part of it), and I have a much easier time staying focused and energized when I'm sitting by a window with natural light.
--It's really interesting to hear different languages being spoken throughout the office. The office is pretty multicultural, and hearing a few people standing around waiting for tea speaking Spanish is a cool experience.
--THEY HAVE TEA. The Lincoln office only has coffee, which I very, very rarely drink. I'm in caffeine heaven with multiple flavors of green tea, and black tea (with milk on hand).
--Finding a meeting room is a cake walk until 2pm, but after that? Good luck. 2pm in London is 8am in Lincoln, so that's meeting time. It doesn't help that I forgot to bring headphones with a speaker, so I _have_ to go to a meeting room vs. taking my standup at my desk. 
--People are a lot less picky about provided lunches, and more open to trying things that would NEVER fly at headquarters. I can promise you people would absolutely lose their shit if we brought in curry for lunch.
--The time difference is more impactful than I expected it to be. I kind of enjoy having the hours in the morning where I can just grind on testing without worrying about meetings or anything of the like, but I feel bad for the developers on my team, because they're getting absolutely bombarded with questions the second they come online -- so it's basically like "Good morning, hope you had your coffee, because I've been sitting on these twenty questions for five hours now."
--Because lunch isn't provided, they have loads of snacks available. The double chocolate biscuits are getting me in trouble. 
+* There is a ton more natural light, which really seems to help my motivation. The Lincoln office is always fairly dark (at least my part of it), and I have a much easier time staying focused and energized when I'm sitting by a window with natural light.
+* It's really interesting to hear different languages being spoken throughout the office. The office is pretty multicultural, and hearing a few people standing around waiting for tea speaking Spanish is a cool experience.
+* THEY HAVE TEA. The Lincoln office only has coffee, which I very, very rarely drink. I'm in caffeine heaven with multiple flavors of green tea, and black tea (with milk on hand).
+* Finding a meeting room is a cake walk until 2pm, but after that? Good luck. 2pm in London is 8am in Lincoln, so that's meeting time. It doesn't help that I forgot to bring headphones with a speaker, so I _have_ to go to a meeting room vs. taking my standup at my desk. 
+* People are a lot less picky about provided lunches, and more open to trying things that would NEVER fly at headquarters. I can promise you people would absolutely lose their shit if we brought in curry for lunch.
+* The time difference is more impactful than I expected it to be. I kind of enjoy having the hours in the morning where I can just grind on testing without worrying about meetings or anything of the like, but I feel bad for the developers on my team, because they're getting absolutely bombarded with questions the second they come online -- so it's basically like "Good morning, hope you had your coffee, because I've been sitting on these twenty questions for five hours now."
+* Because lunch isn't provided, they have loads of snacks available. The double chocolate biscuits are getting me in trouble. 
 
 ![Flowers](https://i.imgur.com/NDpJt1F.jpg)
 
