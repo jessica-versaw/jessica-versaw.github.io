@@ -17,18 +17,23 @@ The area that surrounds the office is quite nice -- so many restaurants you don'
 
 ![Angel](https://i.imgur.com/jy24ZF7.jpg)
 
-#A few thoughts on working out of the London office#
+# A few thoughts on working out of the London office #
 * There is a ton more natural light, which really seems to help my motivation. The Lincoln office is always fairly dark (at least my part of it), and I have a much easier time staying focused and energized when I'm sitting by a window with natural light.
+
 * It's really interesting to hear different languages being spoken throughout the office. The office is pretty multicultural, and hearing a few people standing around waiting for tea speaking Spanish is a cool experience.
 * THEY HAVE TEA. The Lincoln office only has coffee, which I very, very rarely drink. I'm in caffeine heaven with multiple flavors of green tea, and black tea (with milk on hand).
+
 * Finding a meeting room is a cake walk until 2pm, but after that? Good luck. 2pm in London is 8am in Lincoln, so that's meeting time. It doesn't help that I forgot to bring headphones with a speaker, so I _have_ to go to a meeting room vs. taking my standup at my desk. 
+
 * People are a lot less picky about provided lunches, and more open to trying things that would NEVER fly at headquarters. I can promise you people would absolutely lose their shit if we brought in curry for lunch.
+
 * The time difference is more impactful than I expected it to be. I kind of enjoy having the hours in the morning where I can just grind on testing without worrying about meetings or anything of the like, but I feel bad for the developers on my team, because they're getting absolutely bombarded with questions the second they come online -- so it's basically like "Good morning, hope you had your coffee, because I've been sitting on these twenty questions for five hours now."
+
 * Because lunch isn't provided, they have loads of snacks available. The double chocolate biscuits are getting me in trouble. 
 
 ![Flowers](https://i.imgur.com/NDpJt1F.jpg)
 
-#London Lunches#
+# London Lunches #
 Oh man -- London lunches are wonderful. The only day lunch is provided by Hudl is Wednesday, and everyone votes on what they'd like brought in, and then orders specifically what they want -- it's like my early days at Hudl. Obviously not something you can swing in an office of 200 people, but it's a nice touch of nostalgia. 
 
 On days where lunch isn't provided, groups go to one of the million restaurants within five minutes of the office. On Monday, we went to Chilango, which is effectively a Chipotle-style burrito joint. I got...well, pretty much what I get at chipotle, a steak burrito with veg. When asked which salsa I wanted, I obviously said spicy -- and wasn't expecting much, because... England. I wound up having to slink back downstairs to the counter for water. It wasn't too spicy to eat, but too spicy to eat without some water, for certain. 
@@ -37,7 +42,7 @@ On Tuesday, we had my favorite lunch thus far -- this little asian takeaway type
 
 Wednesday, lunch was brought in -- it was a Vietnamese Hot Box. It was fine -- still much better than most of the lunch at HQ, if just for the interesting factor -- but my beef was fatty enough that it made the meal not quite as exciting. Still, not going to complain about a free lunch, particularly in London. 
 
-#Weekday Evenings#
+# Weekday Evenings #
 Can't say we've been doing anything too crazy in the evenings, and we don't really have an opportunity to do much of anything touristy, as most museums and such close at 6pm. On Monday, we got Pho with a couple of the guys from the office, then headed home and hit the bed. We both fell asleep fairly fast, then woke up from about midnight until 2am. Jet lag is a bitch. 
 
 Tuesday, Ryan and I walked down to Exmouth Market, which is a little street lined with cafes about 15 minutes walk from the office. The weather was _fine_, but still not great, so I doubt we really got the full experience there. We wound up eating at a restaurant called Pizza Pilgrim, which was tiny (We actually shared the 6 person high top table with another American couple, who was... odd, to say the least. 99% certain the woman was on drugs.), but delicious. We got a pizza with sausage, broccolini, chili, and mozzerella. They had a chili oil you could use to spice things up a bit, so obviously my slices were doused in that. I'm glad most of the time the option for adding spice does not involve oil, unless I'd probably be huge. We finished with a nutella and salted ricotta pizza ring, which was obviously stupid good. Ryan also headed back to Exmouth to get a haircut at "Barber Streisand," which is a name I get a huge kick out of. 
