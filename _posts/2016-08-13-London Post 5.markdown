@@ -37,6 +37,7 @@ Oh. My. God.
 It was amazing. I wasn't really sure what to expect -- Ryan and I have seen the film and enjoyed it, and it won quite a few awards, but it was one of the cheaper West End shows. It was delightful, there's really no other word to describe it. We also had more thßn a little wine (and a champagne ice pop), and wrapped up the evening at Pizza Express because humans gotta eat. We sat and talked until Ben missed multiple trains, and Ryan and I would get hardly any sleep before we had to wake up at 4am to make our flight. Whoops. (Worth it.)
 
 ![Canal](http://i.imgur.com/uRSexgS.jpg)
+
 *Ryan could not have nailed this photo any harder.*
 
 Well, that's it. The last London post for a few weeks -- I actually wrote a decent chunk of this the other day and forgot to post it, so now I'm cleaning it up and adding on and such, and posting from Madrid. Where we couldn't figure out why our hotel room smelled like sweat until I realized the spin clothes I brought with me (we'll have a washer at our next Airbnb) were hanging out open on the floor. Ha, guess ~~I'm really disgusting~~ it was actuallly a good class. After this post, I'll be done with working until the 29th, so I'm hoping I'll have a bit more time to blog something other than just a play by play of a group of days. 
