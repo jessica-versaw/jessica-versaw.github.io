@@ -9,7 +9,7 @@ tags: Londontown
 
 Sunday. The London socialization marathon continues. 
 
-We slept fairly late, and woke up in time to shower and such to make our brunch reservation with Olgy & Hannah at 1:30. We ate at the Paternoster Chophouse, which is apparently where some British dating reality show is filmed -- but more importantly, has "free-flowing prosecco." I was a little amused to find that's how bottomless brunches were described throughout the city, as it sounds a lot classier than "bottomless mimosas." Our food was a bit slow, but we didn't much mind as the "free-flowing" aspect of the prosecco lasted from when you ordered to when you completed your main. The fact that I'm also the slowest eater in the world came in handy here, as well. 
+We slept fairly late, and woke up in time to shower and such to make our brunch reservation with Olga & Hannah at 1:30. We ate at the Paternoster Chophouse, which is apparently where some British dating reality show is filmed -- but more importantly, has "free-flowing prosecco." I was a little amused to find that's how bottomless brunches were described throughout the city, as it sounds a lot classier than "bottomless mimosas." Our food was a bit slow, but we didn't much mind as the "free-flowing" aspect of the prosecco lasted from when you ordered to when you completed your main. The fact that I'm also the slowest eater in the world came in handy here, as well. 
 
 After the brunch, we made our way to Hyde park to do as the locals -- sit with a bottle of cider and read and lounge about in the sun. We also walked down the Prince Albert Flower Walk, which was quite pretty. We stayed there until it started to get dark, then had some non-exceptional Chinese before heading home. 
 
