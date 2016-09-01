@@ -15,7 +15,7 @@ So, yeah. I didn't know you could injure yourself this severly from a simple fal
 
 It's a pretty big downer for me on a lot of levels. I was looking forward to getting back in my routine -- spin class or barre in the morning, work through the day, come home and make something with vegetables in at night (I did...not eat a lot of vegetables during the month of August). Sunday, I was ecstatic about going to the Old Cheney Farmer's Market (way better than Haymarket Farmer's Market), getting my produce for the week, maybe eating one last not-so-healthy meal from the wood fired pizza stand, and getting unpacked and my house back in order. 
 
-Instead, I got to go to the ER! You know what's fun? When an ER doctor looks at your injury and goes "Oh...wow. I mean, I guess that's what I expected, but... wow. Let me write you a perscription for a stronger painkiller." So, yeah. There's really nothing they can do, they just told me to apply heat and wait. 
+Instead, I got to go to the ER! You know what's fun? When an ER doctor looks at your injury and goes "Oh...wow. I mean, I guess that's what I expected, but... wow. Let me write you a perscription for a stronger painkiller." There's really nothing they can do, they just told me to apply heat and wait. 
 
 Needless to say, laundry isn't done, unpacking is completed about as much as I can do in five minute intervals/from bed, and I am losing my damn mind. Ryan has, of course, been very helpful -- he's cooked dinner the last few nights, which is not his favorite duty, to say the least; and he's been pretty patient with my demands for various housework tasks to be done because the sink full of dirty dishes was driving me insane. 
 
