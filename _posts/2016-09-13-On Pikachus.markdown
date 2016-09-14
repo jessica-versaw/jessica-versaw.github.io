@@ -23,10 +23,7 @@ But, now I'm back in the office, back socializing, and as of yesterday, back at 
 1. It is really hard to get things done when you can't get out of your bed. 
 2. I feel really unaccomplished and depressed when I can't get things done.
 3. I am one of the worst patients in the world. Ryan was regularly telling me I really needed to slow down and not keep trying to push my limits. I don't know why he didn't understand that the fridge needed to be cleaned out RIGHT NOW. 
-
-And the most serious one...
-
-4. The way people look at your when you're obviously not at 100% makes you really, really self-concious. During the worst of it, I'd try to go out on short excursions, mainly for my sanity's sake (and maybe my marriage's when it came to the grocery store). I'd use the stupid scooter thing -- which likes to stop working every 2-5 minutes, by the way -- and the way people looked at me felt pretty terrible. I'm not sure if it was because by all means I appeared to them like a perfectly healthy 20-something, and they thought I was using the cart as a joke, or if it was just a bit of a sense of curiosity, but for the love, it sucked. 
+4. And the most serious one... The way people look at your when you're obviously not at 100% makes you really, really self-concious. During the worst of it, I'd try to go out on short excursions, mainly for my sanity's sake (and maybe my marriage's when it came to the grocery store). I'd use the stupid scooter thing -- which likes to stop working every 2-5 minutes, by the way -- and the way people looked at me felt pretty terrible. I'm not sure if it was because by all means I appeared to them like a perfectly healthy 20-something, and they thought I was using the cart as a joke, or if it was just a bit of a sense of curiosity, but for the love, it sucked. 
 
 It wasn't much better any time I tried to limp around, it almost felt like I made other people uncomfortable just by trying to hobble my way around in the same vicinity as them. Which was crappy. I wasn't aiming to make other people uncomfortable, or draw any attention to myself at all. I just wanted to feel moderately self sufficient and get the hell out of my house. 
 
